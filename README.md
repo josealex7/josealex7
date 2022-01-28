@@ -17,7 +17,7 @@ https://portafolio-alexander-tavera.vercel.app/
 * 🌍 I live in Colombia
 
 Connect with me:
-alexander-tavera-rojas/ 
+https://www.linkedin.com/in/alexander-tavera-rojas/
 
 
 
